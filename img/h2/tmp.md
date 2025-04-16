@@ -1,1 +1,0 @@
-olen vain käymässä
